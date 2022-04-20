@@ -1,0 +1,8 @@
+This privacy policy governs your use of the software application AIP 2 DGAC CHILE 2022 for Android devices that was created by Preparate para Volar.
+
+What information we collect?
+Application does not collect personal information like name, surname, age, date of birth,etc.
+
+
+Contact
+To contact us please use email: preparateparavolar@gmail.com
