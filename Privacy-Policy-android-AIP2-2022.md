@@ -3,6 +3,8 @@ This privacy policy governs your use of the software application AIP 2 DGAC CHIL
 What information we collect?
 Application does not collect personal information like name, surname, age, date of birth,etc.
 
+Yours sincerely
+Preparate para volar.
 
 Contact
 To contact us please use email: preparateparavolar@gmail.com
